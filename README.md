@@ -2,7 +2,7 @@
 
 It's time to go online shopping.
 
-![Bunny](https://gph.is/2b4sIv2)
+![Bunny](https://media.giphy.com/media/l2SpQ6mdHaCUHC5J6/giphy.gif)
 
 ## Where to Start
 
